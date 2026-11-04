@@ -1,1 +1,0 @@
-# walkthrough-Hacker-Holiday-Day-6
